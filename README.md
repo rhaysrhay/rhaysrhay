@@ -6,7 +6,7 @@ Olá, me chamo **Rhayanneh**
 
 •Sou beemm sorridente, e amo isso em mim
 
-•Vou muito bem em matemática 
+•Sou muito boa em matemática 
 
 •Sou horrível em física 
 
